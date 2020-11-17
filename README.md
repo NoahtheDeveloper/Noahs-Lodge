@@ -7,7 +7,7 @@
 > - Jump in game and check it out!
 > 
 > 
-> ► Resources ◄
+> > ► Resources ◄
 > 
 > ☞ Video Tutorial
 > https://www.youtube.com/watch?v=pkTgFMzKW7U&feature=youtu.be
